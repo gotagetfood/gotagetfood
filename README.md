@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gotagetfood 
+- 👀 I’m interested in life
+- 🌱 I’m currently learning at neumont college of computer science
+- 💞️ I’m looking to collaborate on what ever i feel like
+- 📫 How to reach me is discord. if i don't know you plox don't
